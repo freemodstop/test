@@ -1,7 +1,8 @@
 # DLS 25 Hack Mod: Unlock Unlimited Fun in Dream League Soccer 2025
 WATCH TUTORIAL:
-[Everything Is AWESOME](https://i.imgur.com/RNrzKE7.png)](//https://youtu.be/jbKexiDvJQA "Everything Is AWESOME")
-<iframe width="560" height="315" src="" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+
+[![dls 25 hack mod](https://i.imgur.com/RNrzKE7.png)](https://youtu.be/jbKexiDvJQA)
 
 Dream League Soccer 2025 (DLS 25) has taken mobile football gaming to a whole new level. With stunning graphics, real-time multiplayer, and deep career mode features, it’s one of the most downloaded sports games on mobile platforms. However, many players seek a faster route to success — and that’s where the DLS 25 Hack Mod comes into play.
 
